@@ -8,7 +8,7 @@
 
 💬 We seek like-minded partners and collaborators who are enthusiastic about forging the future of technology with us. We believe in the power of collective intelligence to create transformative solutions that redefine industries and enhance human experiences.
 
-📫 Connect with us on LinkedIn or via email at contact@ouroboros-corp.com to discuss potential collaborations, share ideas, or simply to talk about the future of technology.
+📫 Connect with us on LinkedIn or via email at lamine@ouroboros-corp.com / meddah.lamine.pro@gmail.com to discuss potential collaborations, share ideas, or simply to talk about the future of technology.
 
 😄 Our Vision: At Ouroboros Corp, we envision a future where AI's limitless capabilities are intricately woven into the fabric of daily life, enhancing digital sovereignty and augmenting human potential.
     Our goal is to make technology a pivotal part of enhancing human capabilities and ensuring digital sovereignty for all.
